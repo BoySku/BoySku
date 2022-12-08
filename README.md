@@ -1,6 +1,8 @@
 •SKU801•
 ~ Renewable energy ⚡️🌤👷🏻‍♂️
+
 ~ Thermal Engineering ♨️
+
 ~ Intrest Area Scientific Computing and CFD 👨‍🔬🔬🌊
 ~ Up for collaboration on deferent simualtion software developement 
 
